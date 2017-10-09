@@ -1,4 +1,4 @@
-## Meet diverse candidates today
+## Meet diverse candidates 
 
 We source candidates that would otherwise **miss your opportunities**
 
