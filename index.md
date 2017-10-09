@@ -6,3 +6,6 @@ Our candidates trust Piper Talent to match them with the best roles
 
 We build **authentic relationships** with universities and community organizations
 
+## Making safe spaces for artistic collaborations 
+
+Creaator of The Introverts Network series of Writer/Visual Artist meet ups.
