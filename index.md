@@ -1,11 +1,19 @@
-## Meet diverse candidates 
+## Sourcing diverse candidates for creative positions 
 
-We source candidates that would otherwise **miss your opportunities**
+We source candidates that would otherwise **miss your employment pitches**
 
-Our candidates trust Piper Talent to match them with the best roles
+We build authentic relationships with creative thinkers built on professionalism, understanding and trust
 
-We build **authentic relationships** with universities and community organizations
+We develop programs to help empoyers retain the many advantages of their diverse team 
 
 ## Making safe spaces for artistic collaborations 
 
-Creaator of The Introverts Network series of Writer/Visual Artist meet ups.
+Staffed by trained professionals and artists, we understand creatives
+
+We advise and represent  
+
+We are the creators of the popular writer and visual artist networking program: The Introverts Network 
+
+## Bringing creative energy and diversity of thought to your enterprise
+
+What can Piper Talent do for you?
