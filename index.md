@@ -1,6 +1,6 @@
 ## Sourcing diverse candidates for creative positions 
 
-We source candidates that would otherwise **miss your employment pitches**
+We source candidates that would otherwise **miss your job postings**
 
 We build authentic relationships with creative thinkers built on professionalism, understanding and trust
 
